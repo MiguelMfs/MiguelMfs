@@ -1,7 +1,7 @@
 # 👋 Hi, I'm Miguel Santos
 
 💻 **Software Developer & Tech Enthusiast**  
-📍 From Brazil | 🎂 20 years old  
+📍 From Brazil | 🎂 21 years old  
 
 ---
 
