@@ -26,8 +26,7 @@
 ---
 
 ## 🌎 Connect with Me
-- 💼 [LinkedIn](https://www.linkedin.com)  
-- 📧 miguel@email.com  
+- 📧 mfsantos5@hotmail.com
 
 ---
 ✨ *"Code is like humor. When you have to explain it, it’s bad."* ✨
